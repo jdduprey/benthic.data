@@ -1,4 +1,4 @@
-## Biodiversity resources
+## Biodiversity Resources
 
 https://melodiemcgeoch.com/zeta-diversity/
 
